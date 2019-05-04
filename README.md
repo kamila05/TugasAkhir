@@ -1,0 +1,13 @@
+# TugasAkhir
+![alt text](https://github.com/kamila05/TugasAkhir/blob/master/1.png)
+![alt text](https://github.com/kamila05/TugasAkhir/blob/master/2.png)
+![alt text](https://github.com/kamila05/TugasAkhir/blob/master/3.png)
+![alt text](https://github.com/kamila05/TugasAkhir/blob/master/4.png)
+![alt text](https://github.com/kamila05/TugasAkhir/blob/master/7.png)
+![alt text](https://github.com/kamila05/TugasAkhir/blob/master/8.png)
+![alt text](https://github.com/kamila05/TugasAkhir/blob/master/9.png)
+![alt text](https://github.com/kamila05/TugasAkhir/blob/master/10.png)
+![alt text](https://github.com/kamila05/TugasAkhir/blob/master/11.png)
+![alt text](https://github.com/kamila05/TugasAkhir/blob/master/12.png)
+![alt text](https://github.com/kamila05/TugasAkhir/blob/master/13.png)
+![alt text](https://github.com/kamila05/TugasAkhir/blob/master/14.png)
